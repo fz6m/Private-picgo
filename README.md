@@ -1,2 +1,2 @@
-# Private-picgo
-自用 Picgo 图床
+
+火鸡面，大辣椒，一顿不吃会怎样
